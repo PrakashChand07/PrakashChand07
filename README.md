@@ -15,7 +15,7 @@
 
 - 💬 Ask me about *HTML/CSS/JAVASCRIPT/REACT.JS/JAVA*
 
-- 📫 How to reach me **Prakash0719@gmail.com**
+- 📫 How to reach me **Prakash0719pc@gmail.com**
 
 - ⚡ Fun fact *I love travels and Playing Cricket*
 
